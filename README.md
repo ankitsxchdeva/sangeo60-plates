@@ -1,2 +1,1 @@
-# sangeo60-plates
-uploading for perpetuity
+Taken form the monstargear discord with permission. Uploading for perpetuity.
